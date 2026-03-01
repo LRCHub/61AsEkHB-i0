@@ -1,0 +1,69 @@
+# Hotei – POISON
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Love! Love! Love!
+Love is a Poison…
+Love! Love! Love!
+Love is a Poison…
+Love! Love! Love!
+Love is a Poison…
+Love! Love! Love!
+Love is a Poison…
+Baby… 銀の指輪で
+12時の針に手錠を掛けろ
+時間を止めた時から
+物語の扉が開く
+二人の出逢いが遅すぎて
+悲劇を招くとしても
+愛しあう他に何が出来るだろう
+Baby… 死んでいたのさ
+おまえの瞳に恋するまでは
+痛みもときめきもなく
+時の砂にただ埋もれてた
+おまえの涙が乾くなら
+愛しい罪を犯そう
+孤独で張り裂けそうな身体
+闇に燃やして
+接吻でそそぐせつなさは
+二人だけの夜を今日も狂わせる
+毒薬-Poison-
+抱きしめるたびに怖くなる
+溢れだした愛がおまえ壊しそうで
+どんなにあざといペテン師も
+自分に嘘はつけない
+狂おしい夜のために
+人は生きるのだから
+離れても響くせつなさは
+ひとり眠る夜の夢を熱くする
+毒薬-Poison-
+抱きしめるたびに刻まれた
+胸の傷が今は紅い薔薇に見える
+woo…
+接吻でそそぐせつなさは
+二人だけの夜を今日も狂わせる
+毒薬-Poison-
+抱きしめるたびに怖くなる
+溢れだした愛がおまえ壊しそうで
+Love! Love! Love!
+Love is a Poison…
+Love! Love! Love!
+Love is a Poison…
+Love! Love! Love!
+Love is a Poison…
+Love! Love! Love!
+Love is a Poison…
+Love! Love! Love!
+Love is a Poison…
+Love! Love! Love!
+Love is a Poison…
+Love! Love! Love!
+Love is a Poison…
+Love! Love! Love!
+Love is a Poison…
+Love! Love! Love!
+Love is a Poison…
+Love! Love! Love!
+Love is a Poison…
+```
